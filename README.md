@@ -1,3 +1,11 @@
-# pianfan.github.io
+## 进入博客前先大声喊出我们的教义：
 
-My Personal Blog via GitHub
+# MOLCHANGE!!
+
+欢迎来到**某不知名数学组**的~~相册（划掉）~~ 博客
+
+还在开发中
+
+没什么好说的，给大家整个活吧
+
+Ciallo～(∠・ω< )⌒★
